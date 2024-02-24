@@ -4,4 +4,4 @@
 
 ![Preview](https://i.imgur.com/G3MQg1R.png)
 
-Download : https://dosya.co/bilwqz45i83a/event_reminder.zip.html
+Download : https://dosya.co/rht1c28klu42/event_reminder.zip.html
